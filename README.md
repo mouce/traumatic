@@ -1,2 +1,0 @@
-# traumatic
-collective traumatic cue 
